@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on **innovative projects in AI, machine learning,full-stack applications and  web3 **.  
 - 📫 How to reach me: [joshpeck71@gamil.com] | [Your LinkedIn/Twitter Profile]  
 - 😄 Pronouns: [ he/him]  
-- ⚡ Fun fact: I can transition from debugging backend code to training a neural network faster than you can say "asynchronous"!  
+- ⚡  Fun fact: I love **dogs**, I’m obsessed with **chess**, I’m a bit of a **polymath**, and yeah... super humble about it.  
+ 
 
 
